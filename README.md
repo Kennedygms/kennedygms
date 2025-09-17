@@ -1,6 +1,6 @@
 Olá, meu nome é Kennedy👋🏽!
 - - - 
-Tenho 15 anos, atualmente faço um trabalho voluntário como programador de iluminação e mixador de áduio na Igreja Batista Central de Belo Horizonte e também na Igreja Batista Central Vila Estrela Estou em processo de formação academica, no 1 ano do ensino médio, e tenho o sonho de me profissionalizar na área do audiovisual, e ter a programação como uma experiencia academica.
+Tenho 15 anos, atualmente faço um trabalho voluntário como programador de iluminação e mixador de áudio na Igreja Batista Central de Belo Horizonte e também na Igreja Batista Central Vila Estrela Estou em processo de formação academica, no 1 ano do ensino médio, e tenho o sonho de me profissionalizar na área do audiovisual, e ter a programação como uma experiencia academica.
 - - - 
 🧑‍🎓 Estudante de programação no [FavelaWare!](https://favelaware.animahub.com.br/home) 
 
